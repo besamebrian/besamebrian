@@ -5,9 +5,8 @@
         <div>
           　
         </div>
-       <div align="center">
-         . co　 
-         <b><a href="https://rentry.co/besamebrian">besamebrian</a></b>
+       <div align="center">　 
+         <b><a href="https://pronouns.cc/@brim">prnscc</a></b>
          　ᓚᘏᗢ
         </div>
         <div>
@@ -21,10 +20,10 @@
           　
         </div>
           <div align="center">
-       (′︿‵｡)　tim wright 
+       ꒰ᴗ_ᴗ｡　tim wright 
             <b>irl　ߴ　d.a</b>
           <b>　Ი︵𐑼　</b>
-            doubles dni
+            dbl dni
         </div>    
         <div align="center">
           do not copy　𓇻　
@@ -37,9 +36,6 @@
         </div>    
 <div align="center">
           ˚　　　　⊱　　　　.　　　　⌑
-  <div align="center">
-    ᢢ　zero social filter n i block 4 everything
-     <img src="https://files.catbox.moe/okxax0.gif" width="25"><br><br>
   </div>
         </div>    
     </tr>
